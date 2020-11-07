@@ -67,6 +67,8 @@ Excellent tutorial on brass soldering: https://davidneat.wordpress.com/2015/05/0
 ____________________
 ## Vendors for metals
 Ace Hardware
+
 Online Metals
+
 K&S Metals
 
