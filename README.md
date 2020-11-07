@@ -34,7 +34,7 @@ Bluebird, 2020
 the first fifty donors above $500 receive a signed and numbered print from my
 2020 Bluebird edition
 https://www.classy.org/event/bluebird-2020/e308930
-____________________
+
 Fundraiser to support the National Coalition Against Censorship:
 (Bidding runs through November 13)
 Mother Board (Study 1/2), 2020
@@ -42,7 +42,7 @@ digital reproduction of Leonardo da Vinci’s Madonna Litta and acrylic on canva
 Signed, numbered one of two, and dated along the lower edge
 14 x 12 x 1 1/2 in.
 http://vugalleries.com/product/kelly-heaton/
-
+____________________
 ## Jiří Praus
 
 Youtube: https://www.youtube.com/c/jiripraus
@@ -52,7 +52,7 @@ Twitter: https://twitter.com/jipraus
 Instagram: https://www.instagram.com/jiripraus/
 
 Patreon: https://patreon.com/jiripraus
-
+____________________
 ## Mohit Bhoite
 
 Instagram: https://www.instagram.com/mohitbhoite/
@@ -60,11 +60,11 @@ Instagram: https://www.instagram.com/mohitbhoite/
 Twitter: https://twitter.com/MohitBhoite
 
 Website: https://www.bhoite.com/sculptures
-
+____________________
 ## Further Resources
 
 Excellent tutorial on brass soldering: https://davidneat.wordpress.com/2015/05/03/a-quick-guide-to-soldering-brass/
-
+____________________
 ## Vendors for metals
 Ace Hardware
 Online Metals
