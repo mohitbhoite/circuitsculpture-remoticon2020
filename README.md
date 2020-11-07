@@ -27,21 +27,6 @@ https://www.youtube.com/watch?t=1s&v=x94M0nFduNc
 
 Career survey (approx 1 hour lecture):
 https://vimeo.com/471406268
-
-COLLECT MY ART AND SUPPORT A GOOD CAUSE!
-Fundraiser to support Creative Capital:
-Bluebird, 2020
-the first fifty donors above $500 receive a signed and numbered print from my
-2020 Bluebird edition
-https://www.classy.org/event/bluebird-2020/e308930
-
-Fundraiser to support the National Coalition Against Censorship:
-(Bidding runs through November 13)
-Mother Board (Study 1/2), 2020
-digital reproduction of Leonardo da Vinci’s Madonna Litta and acrylic on canvas.
-Signed, numbered one of two, and dated along the lower edge
-14 x 12 x 1 1/2 in.
-http://vugalleries.com/product/kelly-heaton/
 ____________________
 ## Jiří Praus
 
