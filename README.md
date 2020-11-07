@@ -1,4 +1,4 @@
-# Circuit Sculptures Remoticon 2020
+# Circuit Sculptures - Remoticon 2020
 
 ## Kelly Heaton
 Website:
